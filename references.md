@@ -1,3 +1,2 @@
-# References
+### AMOGUS SUS
 
-* octocat 1 😈
